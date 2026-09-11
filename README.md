@@ -2,7 +2,7 @@
 
 ### 图片
 
-![油画](千年土地翻了身.jpg)
+![油画](https://randomname.rth1.xyz/images/千年土地翻了身.jpg.txt)
 
 ### 成员
 
